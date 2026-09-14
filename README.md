@@ -5,6 +5,6 @@
 
 <div align="center">
  <sup><sup> 
- I will cry if ppl think I ship torisai</sup>
+ reita looks so cute in this aww 🥹🥹</sup>
 </sup>
 </div>
